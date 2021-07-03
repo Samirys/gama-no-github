@@ -1,0 +1,1 @@
+O curso de git ofertado pela gama tem sido de bons conhecimentos. Sua didática é interessante e aponta os principais pontos que merecem a devida atenção. Seus principais comandos são bem exemplicados e esclarecidos o que contribui para uma boa base de conhecimento no assunto.
